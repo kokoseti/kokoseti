@@ -1,11 +1,10 @@
-<img width="560" height="315" alt="ffb95cedcadd3898b0eb38ae223e0b8c" src="https://github.com/user-attachments/assets/7667b161-fdbe-4c3e-b937-87d8aa6952f5" />
 
 <img width="640" height="640" alt="f9e2172ecc06dd9fc14a5d3094bb79ec (2) (1)" src="https://github.com/user-attachments/assets/3d969e54-b244-479c-8fba-e45b7c731b33" />
 
 
 
 
-## Hi there 👋
+## eu sou aura e ego!! 👋🔥🔥⭐
 
 <!--
 **kokoseti/kokoseti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
